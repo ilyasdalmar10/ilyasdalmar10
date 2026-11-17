@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @ilyasdalmar10
+I’m Ilyas Dalmar
 
